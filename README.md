@@ -1,4 +1,4 @@
-## Hi there 👋
+## AJR  📖💡
 
 <!--
 **Amani1725/Amani1725** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
